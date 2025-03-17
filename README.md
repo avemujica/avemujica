@@ -2,7 +2,6 @@
 
 <p align="center">
 18 yr old butch lesbian. im autistic and i get high
- my disc is avemuji FOLLOW MY INSTA pwnagez im cool
 </p>
 <p align="center">
 my disc is avemuji FOLLOW MY INSTA pwnagez im cool and i love music
