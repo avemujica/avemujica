@@ -5,10 +5,10 @@
   <img src="https://github.com/avemujica/avemujica/assets/145779116/3097fae1-b713-4057-b113-fa7bb57eda82">
 </p>
 <p align="center">
- ͜ ˖ ̣̣̣† Maxine . 17 yrs
+ ͜ ˖ ̣̣̣† Maxine . 18 yrs
 </p>
 <p align="center">
-trans ︵ lesb
+butch ︵ lesb
 </p>
 <p align="center">
   <img src="https://github.com/avemujica/avemujica/assets/145779116/cc358e62-7d61-487c-99ed-ab1b3add4833">
@@ -17,7 +17,7 @@ trans ︵ lesb
 ♱𓌔 DNI
 </p>
 <p align="center">
-basic dni info ﾉ 13 and under ﾉ just dont be weird
+basic dni info ﾉ 14 and under ﾉ just dont be weird
 </p>
 <p align="center">
 ♱𓌔 BYF
@@ -29,11 +29,11 @@ autistic be patient ﾉ mostly open to int. c+h ﾉ sometimes offscreen srry if 
 ♱𓌔 INTERESTS
 </p>
 <p align="center">
-bandori ﾉ pjsk ﾉ d4dj ﾉ fortnite ﾉ jjk ﾉ brba ﾉ yuri ﾉ ow2 ﾉ +more
+arcane / lis / rdr / rivals / souls games / yj / tlou / way more idk
 </p>
 <p align="center">
 ♱𓌔 NOTE
 </p>
 <p align="center">
-pls dont be afraid to int im always open to new friends ^_^ i made this for ponytown pls read my text.is in my bio for more general info abt me and my socials ty!!<3
+pls dont be afraid to int im always open to new friends ^_^ i made this for ponytown idk im cool just friend me
 </p>
