@@ -6,6 +6,9 @@ wip idkkkk
  my disc is avemuji FOLLOW MY INSTA pwnagez im cool
 </p>
 <p align="center">
+my disc is avemuji FOLLOW MY INSTA pwnagez im cool and i love music
+</p>
+<p align="center">
 i dont have a dni just dont be weird and 15+
  im a very straight forward honest blunt person which can be confused for rudeness, i dont mean it
 </p>
