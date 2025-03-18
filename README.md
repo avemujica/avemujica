@@ -23,5 +23,5 @@ arcane/league - lis - rdr - rivals - souls games - yj - tlou - way more idk
 NOTE
 </p>
 <p align="center">
-pls dont be afraid to int im always open to new friends ^_^ i made this for ponytown idk im cool just friend me
+pls dont be afraid to int im always open to new friends ^_^ i made this for whatever idk im cool just friend me
 </p>
