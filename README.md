@@ -1,7 +1,7 @@
 
 
 <p align="center">
-18+ yr old transmasc butch lesbian. im autistic, i play guitar, skate, and i get high
+18+ transmasc butch lesbian. im autistic, i play guitar, skate, and i get high
 </p>
 <p align="center">
 my disc is avemuji FOLLOW MY INSTA pwnagez im cool and i love music
