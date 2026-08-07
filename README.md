@@ -1,7 +1,7 @@
 
 
 <p align="center">
-18+ transmasc butch lesbian. im autistic, i play games, read comics, skate
+18+ transmasc butch lesbian. im autistic, i play games, read comics, milsim larp, skate
 </p>
 <p align="center">
 my disc is avemuji FOLLOW MY INSTA pwnagez im cool and i love music
