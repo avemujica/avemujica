@@ -18,6 +18,7 @@ INTERESTS
 </p>
 <p align="center">
 milsim, dc/marvel, spn, soulsborne, fallout, lis, a7x/metal, a LOT of other games/shows
+ superman and cyclops my #1's
 </p>
 <p align="center">
 NOTE
