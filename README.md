@@ -19,7 +19,7 @@ i dont have a dni just dont be weird
 INTERESTS
 </p>
 <p align="center">
-milsim, dc/marvel, spn, soulsborne, fallout, lis, a7x/lulu suicide/skrillex/curtan wall, a LOT of other games/shows
+milsim, dc/marvel, spn, soulsborne, fallout, lis, hd2, a7x/lulu suicide/skrillex/curtan wall, a LOT of other games/shows
 </p>
  <p align="center">
  superman and cyclops my #1's
