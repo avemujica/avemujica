@@ -1,7 +1,7 @@
 
 
 <p align="center">
-20 yr old transmasc butch lesbian. im autistic, i play games, read comics, milsim larp, skate
+20 yr old mexican transmasc butch lesbian. im autistic, i play games, read comics, milsim larp, skate
 </p>
 <p align="center">
 my disc is avemuji, u can also ask for insta idk im cool and i love music
