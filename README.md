@@ -7,8 +7,7 @@
 my disc is avemuji, u can also ask for insta idk im cool and i love music
 </p>
 <p align="center">
-i dont have a dni just dont be weird 
- im a very straight forward honest blunt person which can be confused for rudeness, i dont mean it
+i dont have a dni just dont be weird and be 18+ preferably 
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
