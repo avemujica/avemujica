@@ -27,5 +27,8 @@ milsim, dc/marvel, spn, soulsborne, fallout, lis, hd2, a7x/lulu suicide/skrillex
 NOTE
 </p>
 <p align="center">
-i made this for whatever idk im cool just friend or approach me
+i made this for whatever idk im friendly just request or approach me
+  </p>
+  <p align="center">
+c+h and int always welcome
 </p>
