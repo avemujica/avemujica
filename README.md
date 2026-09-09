@@ -1,5 +1,7 @@
 <center>
 <p align="center">
+HE/HIM LESBIANS, BUTCHES, STUDS, AND GNC LESBIANS ARE VAILD.
+<br>
 <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExOXlseW0wZmY3YTFkeGl5NmVvOWFkNG43ZHNmbHdqbDhqbGUyMTlnOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/m8ZDGhGCXACYGIS8HV/giphy.gif" height="300">
 </p>
 <p align="center">
