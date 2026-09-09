@@ -18,7 +18,7 @@ Firefighting Trainee  <img src="https://i.imgur.com/KkGT6hV.png" height="20">  P
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=5khcf6a94wj6iuzbyw0018eke&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=98201d&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=5khcf6a94wj6iuzbyw0018eke&cover_image=true&theme=natemoo-re&show_offline=false&background_color=bababa&interchange=false&profanity=false&hide_remaster=false&bar_color=98201d&bar_color_cover=false">
   </a>
 </p>
    <h1 align="center">
